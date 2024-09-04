@@ -19,7 +19,7 @@
 
 - My interests are: DnD, CR:K / CR:OB, Deltarune, Undertale (and the AUs too), FNaF, history, marine animals-- especially octupuses (NOT octopi. You say "octopuses" not "octopi". Octopi is incorrect! That's an archeic plural form of saying it!!!! /silly)╰（‵□′）╯
 
-- I like to write, draw, read, and sew. (I especially like to write fan fictions. Check out my AO3 in the links section *flutters eyelashes*. I write solely and only SFW! I'm still working on uploading more stuff tho) (o′┏▽┓｀o)
+- I like to write, draw, read, and sew. (o′┏▽┓｀o)
 
 
 PONY TOWN STUFF:

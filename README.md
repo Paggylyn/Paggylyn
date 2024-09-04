@@ -31,7 +31,7 @@
 
 - Big Will Wood fan. I can go on for hours about his music. 🐀🎹
 
-- I'm called "jesterlovingfreak_24" in other socials, so if you find someone with that name, it MIGHT be me. Probably. :P
+- I'm called "jesterlovingfreak_24" or "Paggygeek" in other socials, so if you find someone with those names, it MIGHT be me. Probably. :P
 
 - My interests are: DnD, CR:K / CR:OB, Deltarune, Undertale (and the AUs too), FNaF, history, marine animals-- especially octupuses (NOT octopi. You say "octopuses" not "octopi". Octopi is incorrect! That's an archeic plural form of saying it!!!! /silly)╰（‵□′）╯
 

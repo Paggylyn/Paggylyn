@@ -30,6 +30,7 @@ PONY TOWN STUFF:
 
 - C + H is A-OKAY with me! Even if I don't have it in my name! And even if you're not my friend! >u<
 
+- If you ever see me bullying someone, it's likely a friend, especially friends of mine like Lotus <3
 
 
 KIN-LIST:
@@ -55,7 +56,7 @@ SHIPS:
 
 - Spamton x Jevil (Spamvil): 10000/10. Why does Spamton's name come first in the ship name? Blud is NOT the top /j. Love it. Two clinically insane creturrs kissing and hugging.
 
--Discord x Fluttershy (FlutterCord): 100000000000/10. FAVORITE SHIP OF ALL TIME. I love love love love love love it. Even when I was a wittle girl. LOVE IT.
+- Discord x Fluttershy (FlutterCord): 100000000000/10. FAVORITE SHIP OF ALL TIME. I love love love love love love it. Even when I was a wittle girl. LOVE IT.
 
 
 

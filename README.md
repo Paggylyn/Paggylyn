@@ -6,6 +6,9 @@
 "𝔍𝔢𝔰𝔱𝔢𝔯𝔰 𝔡𝔬 𝔬𝔣𝔱 𝔭𝔯𝔬𝔳𝔢 𝔭𝔯𝔬𝔭𝔥𝔢𝔱𝔰"
         -𝔚𝔦𝔩𝔩𝔦𝔞𝔪 𝔖𝔥𝔞𝔨𝔢𝔰𝔭𝔢𝔞𝔯𝔢
 
+<span style="font-size:90.5em;">heygamer</span>
+
+
 'BOUT ME:
 - Hi, creatures, I'm Paggy or Pitaya. Both work just fine! o(*￣▽￣*)ブ
   

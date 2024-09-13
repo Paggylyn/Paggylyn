@@ -9,6 +9,8 @@
 
 HAZBIN HOTEL / HELLUVA BOSS / DSMP / MHA / MELANIE MARTINEZ FANS DNI!!! Please and thank you <3
 
+WARNING: I love you <3 You look awesome today btw.
+
 By the way, visit my YouTube to see my art. I post a lot on the community and I also post CRK on YT Shorts some times. I'm planning on getting Tumblr once my parents let me :p. Until then, check out my YouTube to see sum art and stuff.
 
 'BOUT ME:

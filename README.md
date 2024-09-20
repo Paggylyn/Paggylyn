@@ -26,7 +26,7 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 - I'm called "jesterlovingfreak_24" or "Paggygeek" in other socials, so if you find someone with those names, it MIGHT be me. Probably. :P
 
-- My interests are: DnD, CR:K / CR:OB, Deltarune, Undertale (and the AUs too), FNaF, history, marine animals-- especially octupuses (NOT octopi. You say "octopuses" not "octopi". Octopi is incorrect! That's an archeic plural form of saying it!!!! /silly) ╰（‵□′）╯
+- My interests are: DnD, CR:K / CR:OB, Deltarune, Undertale (and the AUs too), FNaF, history, marine animals-- especially Orcas!
 
 - I like to write, draw, read, and sew. (o′┏▽┓｀o)
 

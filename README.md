@@ -1,4 +1,4 @@
-[![image](![image](https://github.com/user-attachments/assets/b22a78e6-8de5-4a21-9d3e-893aa67e3d4e)
+(![image](https://github.com/user-attachments/assets/b22a78e6-8de5-4a21-9d3e-893aa67e3d4e)
 
 "𝒩𝑜𝓉 𝑒𝓋𝑒𝓇𝓎 𝓆𝓊𝑒𝓈𝓉𝒾𝑜𝓃 𝒽𝒶𝓈 𝒶𝓃 𝒶𝓃𝓈𝓌𝑒𝓇."
 

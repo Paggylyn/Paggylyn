@@ -1,4 +1,4 @@
-(![image](https://github.com/user-attachments/assets/b22a78e6-8de5-4a21-9d3e-893aa67e3d4e)
+![image](https://github.com/user-attachments/assets/b22a78e6-8de5-4a21-9d3e-893aa67e3d4e)
 
 "𝒩𝑜𝓉 𝑒𝓋𝑒𝓇𝓎 𝓆𝓊𝑒𝓈𝓉𝒾𝑜𝓃 𝒽𝒶𝓈 𝒶𝓃 𝒶𝓃𝓈𝓌𝑒𝓇."
 
@@ -8,7 +8,7 @@ HAZBIN HOTEL / HELLUVA BOSS / DSMP / MHA / MELANIE MARTINEZ FANS DNI!!! Please a
 
 WARNING: I love you <3 You look awesome today btw.
 
-- [@Pay2WinMyHeart](https://github.com/Pay2WinMyHeart) my beloved
+- [@Pay2WinMyHeart]((https://github.com/RBYI-DNC-NoINSPO-please)) my beloved
 
 By the way, visit my YouTube to see my art. I post a lot on the community and I also post CRK on YT Shorts some times. I'm planning on getting Tumblr once my parents let me :p. Until then, check out my YouTube to see sum art and stuff.
 

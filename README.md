@@ -2,9 +2,10 @@
 
 "𝒩𝑜𝓉 𝑒𝓋𝑒𝓇𝓎 𝓆𝓊𝑒𝓈𝓉𝒾𝑜𝓃 𝒽𝒶𝓈 𝒶𝓃 𝒶𝓃𝓈𝓌𝑒𝓇."
 
+DNI list:
 
-
-HAZBIN HOTEL / HELLUVA BOSS / DSMP / MHA / MELANIE MARTINEZ FANS DNI!!! Please and thank you <3
+- HAZBIN HOTEL / HELLUVA BOSS / DSMP / MHA / MELANIE MARTINEZ FANS DNI!!! Please and thank you <3
+- If you're under 13,  please do not interact. (then again, if you're that young I doubt you're going to be reading this. sighhhh)
 
 WARNING: I love you <3 You look awesome today btw.
 

@@ -4,8 +4,8 @@
 
 DNI list:
 
-- HAZBIN HOTEL / HELLUVA BOSS / DSMP / MHA / MELANIE MARTINEZ FANS DNI!!! Please and thank you <3
-- If you're under 13,  please do not interact with me. As in, talk with me. I'm not patient with children on Pony Town. (then again, if you're that young I doubt you're going to be reading this. sighhhh)
+- HAZBIN HOTEL / HELLUVA BOSS / DSMP / MHA / STEVEN UNIVERSE/ MELANIE MARTINEZ FANS DNI!!! Please and thank you <3
+- If you're under 13,  please do not interact with me. As in, talk to me. I'm not patient with children on Pony Town. (then again, if you're that young I doubt you're going to be reading this. sighhhh)
 
 WARNING: I love you <3 You look awesome today btw.
 
@@ -20,15 +20,21 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 'BOUT ME:
 - Hi, creatures, I'm Paggy or Pitaya. Both work just fine! o(*￣▽￣*)ブ
   
-- Minor / hispanic / biligual (English and Spanish) / autism + ADHD are bouncing about and around in my noggin / I don't have a label for my sexuality. (Not something I see necessary to label, if I'm being frank. Also the fact I have better things to think about.)
+- I'm a minor!!! Please don't be weird with me.
+
+- hispanic and biligual (English and Spanish)
+
+- autism + ADHD are bouncing about and around in my noggin.
+
+- I don't have a label for my sexuality. (Not something I see necessary to label, if I'm being frank. Also the fact I have better things to think about.)
   
-- I go by "She/her", but while cosplaying a character that goes by other pronouns, feel free to address me as such pronouns! (≧∇≦)ﾉ
+- I go by "She/her", but while cosplaying a character that goes by other pronouns, feel free to address me as such pronouns even when I'm out of character! (≧∇≦)ﾉ
 
 - Big Will Wood fan. I can go on for hours about his music. 🐀🎹
 
 - I'm called "jesterlovingfreak_24" or "Paggygeek" in other socials, so if you find someone with those names, it MIGHT be me. Probably. :P
 
-- My interests are: DnD, CR:K / CR:OB, Deltarune, Undertale (and the AUs too), FNaF, history, marine animals-- especially Orcas!
+- My interests are: DnD, CR:K / CR:OB, Deltarune, Undertale (and the AUs too), FNaF, history, jesters, marine animals-- especially Orcas! (I like a buncha fandom stuff so if it has a huge fandom, I probably know it)
 
 - I like to write, draw, read, and sew. (o′┏▽┓｀o)
 
@@ -45,9 +51,12 @@ PONY TOWN STUFF:
 
 
 KIN-LIST:
-- Erm, usually I put like a long list of characters that are socially awkward and introverted and sarcastic, but lately I guess I've grown into a different person and now kin characters like Pitaya Dragon Cookie or sumthin. So, yeah, I'm having to scrap my kin list just because I realized I don't relate to the same characters as before. *prolongued sigh* (ToT)/~~~
-  
-- Also, btw, my nickname isn't Pitaya because I happen to kin a character named Pitaya. I've always been called Pitaya by folks (っ´Ι`)っ
+Huzzah! Kin list time!
+- Snatcher from A Hat in Time
+- Sun from FNaF: Help Wanted
+- Licorice Cookie from Cookie Run Kingdom
+- Error!Sans by CrayonQueen
+- I sometimes kin Pitaya Dragon, but that's mostly because one of my nicknames is PItaya and because sometimes I get kinda stubborn and brutish like they do.
 
 
 SHIPS:

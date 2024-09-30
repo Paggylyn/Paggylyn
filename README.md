@@ -5,7 +5,7 @@
 DNI list:
 
 - HAZBIN HOTEL / HELLUVA BOSS / DSMP / MHA / MELANIE MARTINEZ FANS DNI!!! Please and thank you <3
-- If you're under 13,  please do not interact. (then again, if you're that young I doubt you're going to be reading this. sighhhh)
+- If you're under 13,  please do not interact with me. As in, talk with me. I'm not patient with children on Pony Town. (then again, if you're that young I doubt you're going to be reading this. sighhhh)
 
 WARNING: I love you <3 You look awesome today btw.
 

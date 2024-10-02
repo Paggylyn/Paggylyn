@@ -12,6 +12,10 @@ DNI list:
 WARNING: I love you <3 You look awesome today btw.
 
 
+
+
+![64cb0c8464390d3216f3413300440ef9-removebg-preview](https://github.com/user-attachments/assets/14e50f14-3970-47cd-b65e-3bbe2a626e8f)
+
 My #1 pooksters, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved
 - [@Pay2WinMyHeart](https://github.com/RBYI-DNC-NoINSPO-please) my beloved

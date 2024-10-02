@@ -81,8 +81,6 @@ SHIPS:
   
 - Hollyberry Cookie x Pitaya Dragon Cookie (HollyTaya): 1000/10. LOVE IT. Hollyberries INT!!!!
 
-- Pitaya Dragon Cookie x Ananas Dragon Cookie (I dunno the ship name asjdhaydka): 7/10. They fight and kiss. I'm betting on it grrrr /j (Same reason why I like Hollytaya ehehe)
-
 - Pure Vanilla Cookie x White Lily Cookie (PureLily): 9.8/10. Overdone but I like it. big comf ship of mine ^^^^
 
 - Conductor x DJ Grooves (Dunno the ship name blehhh): 9/10. Old men bird love!!!

@@ -61,6 +61,7 @@ PONY TOWN STUFF:
 
 - If you ever see me bullying someone, it's likely a friend, especially friends of mine like Lotus <3
 
+![tumblr_afbd82d5e71d7dbdcec34ef84004e7ed_4962dc06_400-removebg-preview](https://github.com/user-attachments/assets/995a8524-915a-4d4f-9934-28e96106e1f5)
 
 KIN-LIST:
 Huzzah! Kin list time!
@@ -70,6 +71,8 @@ Huzzah! Kin list time!
 - Error!Sans by CrayonQueen
 - I sometimes kin Pitaya Dragon, but that's mostly because one of my nicknames is PItaya and because sometimes I get kinda stubborn and brutish like they do.
 
+  
+![4d5f7a0f582da529e3116c6df1993931-removebg-preview](https://github.com/user-attachments/assets/4173464a-8ef7-48f4-a5d3-d8ea33187121)
 
 SHIPS:
 - Shadow Milk Cookie x Eternal Sugar Cookie (ShadowSugar): 10/10. TV girl reference. The moment Eternal Sugar comes out, I will be drawing so much fanart. You don't even KNOW.
@@ -91,6 +94,7 @@ SHIPS:
 - Discord x Fluttershy (FlutterCord): 100000000000/10. FAVORITE SHIP OF ALL TIME. I love love love love love love it. Even when I was a wittle girl. LOVE IT.
 
 
+![8d87e828c18d6ea83c8ae65ef2ee3081-removebg-preview](https://github.com/user-attachments/assets/d0b5adb2-c5ad-4a72-9ff3-696220aae4ae)
 
 ~.~.~.~.~
   

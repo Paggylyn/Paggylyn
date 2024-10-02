@@ -72,7 +72,7 @@ Huzzah! Kin list time!
 - I sometimes kin Pitaya Dragon, but that's mostly because one of my nicknames is PItaya and because sometimes I get kinda stubborn and brutish like they do.
 
   
-![4d5f7a0f582da529e3116c6df1993931-removebg-preview](https://github.com/user-attachments/assets/4173464a-8ef7-48f4-a5d3-d8ea33187121)
+![4d5f7a0f582da529e3116c6df1993931-removebg-preview(1)](https://github.com/user-attachments/assets/b2f9217e-d0ea-4195-b8a5-b386d287053a)
 
 SHIPS:
 - Shadow Milk Cookie x Eternal Sugar Cookie (ShadowSugar): 10/10. TV girl reference. The moment Eternal Sugar comes out, I will be drawing so much fanart. You don't even KNOW.

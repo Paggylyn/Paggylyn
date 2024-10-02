@@ -26,7 +26,6 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 ![94012491e23201aa30a0e5848322851b-removebg-preview](https://github.com/user-attachments/assets/a8e4325b-16d9-4a90-af7e-f16bf2b42af9)
 
-
 'BOUT ME:
 - Hi, creatures, I'm Paggy or Pitaya. Both work just fine! o(*￣▽￣*)ブ
   
@@ -48,6 +47,9 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 - I like to write, draw, read, and sew. (o′┏▽┓｀o)
 
+  
+
+![06a1ed2ecef9b71f868a6fcb85799c37-removebg-preview](https://github.com/user-attachments/assets/17382843-1439-4af1-963f-8e045f3311c6)
 
 PONY TOWN STUFF:
 

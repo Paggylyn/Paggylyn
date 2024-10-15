@@ -8,7 +8,9 @@ DNI list:
 
 - HAZBIN HOTEL / HELLUVA BOSS / DSMP / MHA / STEVEN UNIVERSE/ MELANIE MARTINEZ FANS DNI!!! Please and thank you <3
 - If you're under 13,  please do not interact with me. As in, talk to me. I'm not patient with children on Pony Town. (then again, if you're that young I doubt you're going to be reading this. sighhhh)
-- If you make fun of any religion at all. Just because you don't believe in said religion, doesn't mean you can make fun of it and disrespect it <3. Maybe try being open minded instead of demanding other people to be open minded for your own sake. The world doesn't revolve around you, sorry.
+- If you make fun of any religion at all. Just because you don't believe in said religion, doesn't mean you can make fun of it and disrespect it <3.
+- Heavily political people. I'm not in the mood to talk about politics with anyone online.
+- People that that make fun of cis or straight people in general. I'm not cis nor straight, but I can gladly tell you that heterophobia/cisphobia is just as bad as homophobia. YOU'RE ignorant too if you make fun of people just for their gender identity and sexuality, het or homo. 
 
 WARNING: I love you <3 You look awesome today btw.
 

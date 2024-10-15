@@ -38,7 +38,7 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 - autism + ADHD are bouncing about and around in my noggin.
 
-- I don't have a label for my sexuality. (Not something I see necessary to label, if I'm being frank. Also the fact I have better things to think about.)
+- I don't have a label for my sexuality. (Not something I see necessary to label, if I'm being frank. Also the fact I have better things to think about. I kiss whoever I want)
   
 - I go by "She/her", but while cosplaying a character that goes by other pronouns, feel free to address me as such pronouns even when I'm out of character! (≧∇≦)ﾉ
 

@@ -70,8 +70,9 @@ KIN-LIST:
 Huzzah! Kin list time!
 - Sun from FNaF: Help Wanted
 - Error!Sans by CrayonQueen
-- Pitaya Dragon Cookie from Cookie:Run Kingdom/Cookie Run: OvenBreak
-  
+- Pitaya Dragon Cookie from Cookie: Run Kingdom/Cookie Run: OvenBreak
+- Burning Spice Cookie from Cookie: Run Kingdom
+
 ![4d5f7a0f582da529e3116c6df1993931-removebg-preview(1)](https://github.com/user-attachments/assets/b2f9217e-d0ea-4195-b8a5-b386d287053a)
 
 SHIPS:

@@ -68,12 +68,9 @@ PONY TOWN STUFF:
 
 KIN-LIST:
 Huzzah! Kin list time!
-- Snatcher from A Hat in Time
 - Sun from FNaF: Help Wanted
-- Licorice Cookie from Cookie Run Kingdom
 - Error!Sans by CrayonQueen
-- I sometimes kin Pitaya Dragon, but that's mostly because one of my nicknames is PItaya and because sometimes I get kinda stubborn and brutish like they do.
-
+- Pitaya Dragon Cookie from Cookie:Run Kingdom/Cookie Run: OvenBreak
   
 ![4d5f7a0f582da529e3116c6df1993931-removebg-preview(1)](https://github.com/user-attachments/assets/b2f9217e-d0ea-4195-b8a5-b386d287053a)
 

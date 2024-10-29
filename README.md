@@ -62,7 +62,7 @@ PONY TOWN STUFF:
 
 - C + H is A-OKAY with me! Even if I don't have it in my name! And even if you're not my friend! >u<
 
-- If you ever see me bullying someone, it's likely a friend, especially friends of mine like Lotus <3
+- If you ever see me bullying someone, it's likely a friend, especially friends of mine like Lotus, Ruki, or Cetrus <3.
 
 ![tumblr_afbd82d5e71d7dbdcec34ef84004e7ed_4962dc06_400-removebg-preview](https://github.com/user-attachments/assets/995a8524-915a-4d4f-9934-28e96106e1f5)
 

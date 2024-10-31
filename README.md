@@ -24,8 +24,8 @@ WARNING: I love you <3 You look awesome today btw.
 
 
 <p align="center" style="display: flex; justify-content: center;">
-    <img width="400" src="https://github.com/user-attachments/assets/1ef6f088-fcf9-4315-a29e-b91935f88c0a">
-    <img width="500" src="https://github.com/user-attachments/assets/645e1d7b-2817-4db0-b735-ba828476945a">
+    <img width="10" src="https://github.com/user-attachments/assets/1ef6f088-fcf9-4315-a29e-b91935f88c0a">
+    <img width="10" src="https://github.com/user-attachments/assets/645e1d7b-2817-4db0-b735-ba828476945a">
 </p>
 
 

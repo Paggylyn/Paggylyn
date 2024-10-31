@@ -37,7 +37,11 @@ My #1 pooksters, that are on GitHub:
   
 By the way, visit my YouTube to see my art. I post a lot on the community and I also post CRK on YT Shorts some times. I'm planning on getting Tumblr once my parents let me :p. Until then, check out my YouTube to see sum art and stuff.
 
-![Jester-cigarette-card-1-removebg-preview](https://github.com/user-attachments/assets/165030c9-a07e-4af1-a8c1-06ad9f22eb64)
+
+<p align="center" style="display: flex; justify-content: center;">
+    <img width="200" src="https://github.com/user-attachments/assets/165030c9-a07e-4af1-a8c1-06ad9f22eb64">
+    <img width="200" src="github.com/user-attachments/assets/a34be223-b022-4f8c-a75b-aff6f2338504">
+</p>
 
 'BOUT ME:
 - Hi, creatures, I'm Paggy or Pitaya. Both work just fine! o(*￣▽￣*)ブ

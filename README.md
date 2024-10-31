@@ -28,7 +28,7 @@ WARNING: Just as jesters, I tend to be sarcastic and rude. Do keep in mind, I'm 
 
 
 
-My #1 pooksters, that are on GitHub:
+My dearests, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved
 - [@Pay2WinMyHeart](https://github.com/RBYI-DNC-NoINSPO-please) my beloved
   

@@ -12,12 +12,12 @@ DNI list:
 - If you're under 13,  please do not interact with me. As in, talk to me. I'm not patient with children on Pony Town. (then again, if you're that young I doubt you're going to be reading this. sighhhh)
 - If you make fun of any religion at all. Just because you don't believe in said religion, doesn't mean you can make fun of it and disrespect it <3.
 - Heavily political people. I'm not in the mood to talk about politics with anyone online.
-- People that make fun of cis or straight people in general. I'm not cis nor straight, but I can gladly tell you that heterophobia/cisphobia is just as bad as homophobia. YOU'RE ignorant too if you make fun of people just for their gender identity and sexuality, het or homo. 
+- People that make fun of cis or straight people in general. YOU'RE ignorant  if you make fun of people just for their gender identity and sexuality, het or homo. Period.
 
 
 
 <p align="center">
-WARNING: I love you <3 You look awesome today btw.
+WARNING: Just as jesters, I tend to be sarcastic and rude. Do keep in mind, I'm joking unless stated otherwise. Tell me if you need me to use tone tellers.
 </p>
 
 
@@ -42,7 +42,7 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 </p>
 
 'BOUT ME:
-- Hi, creatures, I'm Paggy or Pitaya. Both work just fine! o(*￣▽￣*)ブ
+- Hi, creatures, I'm Paggy or Pitaya. Both work just fine! 
   
 - I'm a minor!!! Please don't be weird with me.
 
@@ -52,15 +52,15 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 - I don't have a label for my sexuality. (Not something I see necessary to label, if I'm being frank. Also the fact I have better things to think about. I kiss whoever I want)
   
-- I go by "She/her", but while cosplaying a character that goes by other pronouns, feel free to address me as such pronouns even when I'm out of character! (≧∇≦)ﾉ
+- I go by "She/her", but while cosplaying a character that goes by other pronouns, feel free to address me as such pronouns even when I'm out of character! 
 
 - Big Will Wood fan. I can go on for hours about his music. 🐀🎹
 
-- I'm called "jesterlovingfreak_24" or "Paggygeek" in other socials, so if you find someone with those names, it MIGHT be me. Probably. :P
+- I'm called "jesterlovingfreak_24" or "Paggygeek" in other socials, so if you find someone with those names, it MIGHT be me. Probably. 
 
 - My interests are: DnD, CR:K / CR:OB, Deltarune, Undertale (and the AUs too), FNaF, history, jesters, marine animals-- especially Orcas! (I like a buncha fandom stuff so if it has a huge fandom, I probably know it)
 
-- I like to write, draw, read, and sew. (o′┏▽┓｀o)
+- I like to write, draw, read, and sew. 
 
   
 
@@ -84,7 +84,7 @@ Huzzah! Kin list time!
 - Sun from FNaF: Help Wanted
 - Error!Sans by CrayonQueen
 - Pitaya Dragon Cookie from Cookie: Run Kingdom/Cookie Run: OvenBreak
-- Burning Spice Cookie from Cookie: Run Kingdom
+- Sebastian from Pressure
   
 THATS about all!! thank you for reading, goobers!
 

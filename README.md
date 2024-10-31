@@ -1,7 +1,8 @@
 
+<p align="center">
+    <img width="200" src=https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4
+</p>
 
-
-![Casimiro_Tomba_-_Drunk_Warrior_and_Court_Jester_Italian_painting_of_19th_century_-__MeisterDrucke-1184836_-removebg-preview](https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4)
 
 
 
@@ -61,40 +62,16 @@ PONY TOWN STUFF:
 
 - C + H is A-OKAY with me! Even if I don't have it in my name! And even if you're not my friend! >u<
 
-- If you ever see me bullying someone, it's likely a friend, especially friends of mine like Lotus, Ruki, or Cetrus <3.
+- If you ever see me bullying someone, it's likely a friend, especially friends of mine like Zai, Ruki, or Cetrus <3.
+- 
 
-![tumblr_afbd82d5e71d7dbdcec34ef84004e7ed_4962dc06_400-removebg-preview](https://github.com/user-attachments/assets/995a8524-915a-4d4f-9934-28e96106e1f5)
-
-KIN-LIST:
+![the-court-jester-by-john-watson-nicol-c1a77e-1024-removebg-preview](https://github.com/user-attachments/assets/91c56b85-3a0d-4168-9128-93990ce5acbe)
+KIN-LIST
 Huzzah! Kin list time!
 - Sun from FNaF: Help Wanted
 - Error!Sans by CrayonQueen
 - Pitaya Dragon Cookie from Cookie: Run Kingdom/Cookie Run: OvenBreak
 - Burning Spice Cookie from Cookie: Run Kingdom
-
-![4d5f7a0f582da529e3116c6df1993931-removebg-preview(1)](https://github.com/user-attachments/assets/b2f9217e-d0ea-4195-b8a5-b386d287053a)
-
-SHIPS:
-- Shadow Milk Cookie x Eternal Sugar Cookie (ShadowSugar): 10/10. TV girl reference. The moment Eternal Sugar comes out, I will be drawing so much fanart. You don't even KNOW.
-
-- Sea Fairy Cookie x Moonlight Cookie (SeaMoon): 10/10. Moon x the sea trope is always so poetic. LOVE IT AAA-
-  
-- Hollyberry Cookie x Pitaya Dragon Cookie (HollyTaya): 1000/10. LOVE IT. Hollyberries INT!!!!
-
-- Pure Vanilla Cookie x White Lily Cookie (PureLily): 9.8/10. Overdone but I like it. big comf ship of mine ^^^^
-
-- Conductor x DJ Grooves (Dunno the ship name blehhh): 9/10. Old men bird love!!!
-
-- Error!Sans x Ink!Sans (GlitchSquid or Errorink): 8/10. Enemies to lovers. Fight me, but I like it. GRAH!!! /silly. I do head canon both as asexual, so I like to imagine their relationship is more non-sexual fluffiness than anything.
-
-- Spamton x Jevil (Spamvil): 10000/10. Why does Spamton's name come first in the ship name? Blud is NOT the top /j. Love it. Two clinically insane creturrs kissing and hugging.
-
-- Discord x Fluttershy (FlutterCord): 100000000000/10. FAVORITE SHIP OF ALL TIME. I love love love love love love it. Even when I was a wittle girl. LOVE IT.
-
-
-![8d87e828c18d6ea83c8ae65ef2ee3081-removebg-preview](https://github.com/user-attachments/assets/d0b5adb2-c5ad-4a72-9ff3-696220aae4ae)
-
-~.~.~.~.~
   
 THATS about all!! thank you for reading, goobers!
 

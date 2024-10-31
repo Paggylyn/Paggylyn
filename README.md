@@ -1,8 +1,9 @@
 
-![f852e1908d6e2cd53bbbcaef5e609164](https://github.com/user-attachments/assets/7d1672f6-fb2e-4a68-9160-898c79ccaa80)
 
 
-"𝒩𝑜𝓉 𝑒𝓋𝑒𝓇𝓎 𝓆𝓊𝑒𝓈𝓉𝒾𝑜𝓃 𝒽𝒶𝓈 𝒶𝓃 𝒶𝓃𝓈𝓌𝑒𝓇."
+![Casimiro_Tomba_-_Drunk_Warrior_and_Court_Jester_Italian_painting_of_19th_century_-__MeisterDrucke-1184836_-removebg-preview](https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4)
+
+
 
 DNI list:
 
@@ -16,8 +17,7 @@ WARNING: I love you <3 You look awesome today btw.
 
 
 
-
-![64cb0c8464390d3216f3413300440ef9-removebg-preview](https://github.com/user-attachments/assets/14e50f14-3970-47cd-b65e-3bbe2a626e8f)
+![image-removebg-preview(2)](https://github.com/user-attachments/assets/2cfd813a-5103-49c2-bc47-75bb032be0b9)
 
 My #1 pooksters, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved

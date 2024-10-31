@@ -60,7 +60,7 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 - My interests are: DnD, CR:K / CR:OB, Deltarune, Undertale (and the AUs too), FNaF, history, jesters, marine animals-- especially Orcas! (I like a buncha fandom stuff so if it has a huge fandom, I probably know it)
 
-- I like to write, draw, read, and sew. 
+- I like to write, draw, read, sculpt, and sew. (ASK ME FOR BOOK RECOMMENDATIONS PLEAAAAAASE)
 
   
 
@@ -70,8 +70,7 @@ PONY TOWN STUFF:
 
 - I roleplay a lot. I like to say I'm experienced with all forms of roleplaying across different platforms, but really I've just been roleplaying online since I was around 9.ヾ(≧▽≦*)o
 
-- Feel free to interact with me on Pony Town. If I don't respond, I'm probably afk because I like having Pony Town running in the background while I do schoolwork or while I write. So, if that's the case, just whisper me! ヾ(•ω•`)
-
+- Feel free to interact with me on Pony Town. If I don't respond, I'm probably afk because I like having Pony Town running in the background while I do schoolwork or while I write. So, if that's the case, just whisper me! 
 - C + H is A-OKAY with me! Even if I don't have it in my name! And even if you're not my friend! >u<
 
 - If you ever see me bullying someone, it's likely a friend, especially friends of mine like Zai, Ruki, or Cetrus <3.

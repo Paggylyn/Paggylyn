@@ -20,7 +20,7 @@ WARNING: I love you <3 You look awesome today btw.
 
 
 <p align="center">
-    <img width="200" src="https://github.com/user-attachments/assets/71ea525f-d686-42b4-b271-8e96ce2759bb">
+    <img width="200" src="https://github.com/user-attachments/assets/1ef6f088-fcf9-4315-a29e-b91935f88c0a">
      <img width="300" src="https://github.com/user-attachments/assets/2cfd813a-5103-49c2-bc47-75bb032be0b9">
 </p>
 

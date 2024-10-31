@@ -26,8 +26,7 @@ My #1 pooksters, that are on GitHub:
   
 By the way, visit my YouTube to see my art. I post a lot on the community and I also post CRK on YT Shorts some times. I'm planning on getting Tumblr once my parents let me :p. Until then, check out my YouTube to see sum art and stuff.
 
-
-![94012491e23201aa30a0e5848322851b-removebg-preview](https://github.com/user-attachments/assets/a8e4325b-16d9-4a90-af7e-f16bf2b42af9)
+![Jester-cigarette-card-1-removebg-preview](https://github.com/user-attachments/assets/165030c9-a07e-4af1-a8c1-06ad9f22eb64)
 
 'BOUT ME:
 - Hi, creatures, I'm Paggy or Pitaya. Both work just fine! o(*￣▽￣*)ブ
@@ -52,7 +51,7 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
   
 
-![06a1ed2ecef9b71f868a6fcb85799c37-removebg-preview](https://github.com/user-attachments/assets/17382843-1439-4af1-963f-8e045f3311c6)
+![john-william-waterhouse-touchstone-the-jester-f966b2-1024-removebg-preview](https://github.com/user-attachments/assets/0db58d69-455c-4ef0-b03a-e4f8046c395f)
 
 PONY TOWN STUFF:
 

@@ -17,7 +17,7 @@ DNI list:
 WARNING: I love you <3 You look awesome today btw.
 
 <p align="left">
-    <img width="2000" src="https://github.com/user-attachments/assets/2cfd813a-5103-49c2-bc47-75bb032be0b9">
+    <img width="300" src="https://github.com/user-attachments/assets/2cfd813a-5103-49c2-bc47-75bb032be0b9">
 </p>
 
 <p align="right">

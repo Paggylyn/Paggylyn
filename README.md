@@ -16,9 +16,10 @@ DNI list:
 
 WARNING: I love you <3 You look awesome today btw.
 
+<p align="left">
+    <img width="200" src="https://github.com/user-attachments/assets/2cfd813a-5103-49c2-bc47-75bb032be0b9">
+</p>
 
-
-![image-removebg-preview(2)](https://github.com/user-attachments/assets/2cfd813a-5103-49c2-bc47-75bb032be0b9)
 
 My #1 pooksters, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved

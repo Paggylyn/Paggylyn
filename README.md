@@ -14,7 +14,9 @@ DNI list:
 - Heavily political people. I'm not in the mood to talk about politics with anyone online.
 - People that make fun of cis or straight people in general. I'm not cis nor straight, but I can gladly tell you that heterophobia/cisphobia is just as bad as homophobia. YOU'RE ignorant too if you make fun of people just for their gender identity and sexuality, het or homo. 
 
+<p align="center">
 WARNING: I love you <3 You look awesome today btw.
+</p>
 
 
 

@@ -23,8 +23,7 @@ WARNING: I love you <3 You look awesome today btw.
 
 
 <p align="center" style="display: flex; justify-content: center;">
-    <img width="200" src="https://github.com/user-attachments/assets/1ef6f088-fcf9-4315-a29e-b91935f88c0a">
-    <img width="200" src="https://github.com/user-attachments/assets/e3b49f98-72d9-444f-81f7-6d0cd2fba683">
+    <img width="300" src="https://github.com/user-attachments/assets/1ef6f088-fcf9-4315-a29e-b91935f88c0a">
 </p>
 
 
@@ -39,7 +38,7 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 <p align="center" style="display: flex; justify-content: center;">
     <img width="200" src="https://github.com/user-attachments/assets/165030c9-a07e-4af1-a8c1-06ad9f22eb64">
-    <img width="200" src="github.com/user-attachments/assets/a34be223-b022-4f8c-a75b-aff6f2338504">
+    <img width="200" src="[github.com/user-attachments/assets/a34be223-b022-4f8c-a75b-aff6f2338504](https://github.com/user-attachments/assets/e3b49f98-72d9-444f-81f7-6d0cd2fba683)">
 </p>
 
 'BOUT ME:

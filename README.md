@@ -37,7 +37,7 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 
 <p align="center" style="display: flex; justify-content: center;">
-    <img width="300" src="https://github.com/user-attachments/assets/165030c9-a07e-4af1-a8c1-06ad9f22eb64">
+    <img width="400" src="https://github.com/user-attachments/assets/165030c9-a07e-4af1-a8c1-06ad9f22eb64">
     <img width="200" src="https://github.com/user-attachments/assets/e3b49f98-72d9-444f-81f7-6d0cd2fba683">
 </p>
 

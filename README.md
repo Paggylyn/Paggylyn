@@ -22,10 +22,9 @@ WARNING: I love you <3 You look awesome today btw.
 
 
 
-
 <p align="center" style="display: flex; justify-content: center;">
     <img width="200" src="https://github.com/user-attachments/assets/1ef6f088-fcf9-4315-a29e-b91935f88c0a">
-    <img width="200" src="https://github.com/user-attachments/assets/645e1d7b-2817-4db0-b735-ba828476945a">
+    <img width="200" src="https://github.com/user-attachments/assets/e3b49f98-72d9-444f-81f7-6d0cd2fba683">
 </p>
 
 

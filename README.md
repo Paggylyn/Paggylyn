@@ -16,11 +16,9 @@ DNI list:
 - King Henry VIII.
 
 
-Apart from these, any int is okay. Just don't be "𝓯𝓻𝓮𝓪𝓴𝔂" with my cosplays or characters. (Why do people do that? It's weird. Stop it. It's just pixel horses on a screen, you weirdos.)
-
 
 <p align="center">
-WARNING: Just as jesters, I tend to be sarcastic and rude. Do keep in mind, I'm joking unless stated otherwise. Tell me if you need me to use tone tellers.
+WARNING: Just as jesters, I tend to be sarcastic and rude. Do keep in mind, I'm joking unless stated otherwise. Tell me if you need me to use tone tellers. I also get kinda frustrated when peope call jesters clowns. There's a difference and I WILL correct you. 
 </p>
 
 

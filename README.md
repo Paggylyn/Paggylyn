@@ -69,7 +69,7 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 PONY TOWN STUFF:
 
-- I roleplay a lot. I like to say I'm experienced with all forms of roleplaying across different platforms, but really I've just been roleplaying online since I was around 9.ヾ(≧▽≦*)o
+- I roleplay a lot. One of my natural habitats on PT is Kingdom roleplays. That's where you'll likely find me.
 
 - Feel free to interact with me on Pony Town. If I don't respond, I'm probably afk because I like having Pony Town running in the background while I do schoolwork or while I write. So, if that's the case, just whisper me! 
 - C + H is A-OKAY with me! Even if I don't have it in my name! And even if you're not my friend! >u<

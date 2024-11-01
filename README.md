@@ -18,7 +18,7 @@ DNI list:
 
 
 <p align="center">
-WARNING: Just as jesters, I tend to be sarcastic and rude. Do keep in mind, I'm joking unless stated otherwise. Tell me if you need me to use tone tellers. I also get kinda frustrated when peope call jesters clowns. There's a difference and I WILL correct you. 
+WARNING: Just as jesters, I tend to be sarcastic, sassy, and everything in between. Do keep in mind, I'm joking unless stated otherwise. Tell me if you need me to use tone tellers. I also get kinda frustrated when peope call jesters clowns. There's a difference and I WILL correct you. 
 </p>
 
 

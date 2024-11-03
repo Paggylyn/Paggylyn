@@ -23,13 +23,20 @@ WARNING: Just as jesters, I tend to be sarcastic, sassy, and everything in betwe
 </p>
 
 
-Currently Reading:
+<p align="center" style="display: flex; justify-content: center;">
+    <"Currently Reading">
+</p>
 
 <p align="center" style="display: flex; justify-content: center;">
     <img width="300" src="https://github.com/user-attachments/assets/24f7bafd-4c2d-4806-961f-2da05e6e8af5">
 </p>
 
-![2440927_25e0d](https://github.com/user-attachments/assets/8ce6192c-61d3-440a-aeeb-f21496433222)
+
+
+
+
+
+
 
 
 <p align="center" style="display: flex; justify-content: center;">

@@ -25,7 +25,9 @@ WARNING: Just as jesters, I tend to be sarcastic, sassy, and everything in betwe
 
 
 
-
+<p align="center" style="display: flex; justify-content: center;">
+    <img width="300" src="https://github.com/user-attachments/assets/9451da31-f702-4bfd-8cb2-20b040204ed3">
+</p>
 
 
 <p align="center" style="display: flex; justify-content: center;">
@@ -38,6 +40,9 @@ WARNING: Just as jesters, I tend to be sarcastic, sassy, and everything in betwe
 
 
 
+<p align="center" style="display: flex; justify-content: center;">
+    <img width="300" src="https://github.com/user-attachments/assets/9451da31-f702-4bfd-8cb2-20b040204ed3">
+</p>
 
 
 

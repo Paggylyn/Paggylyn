@@ -5,7 +5,7 @@
 </p>
 
 
-## ATTENTION: Copy my skins without my permission, and I'll personally tie you to a table and dismember you with a saw medieval style. Thank you for your understanding. 
+## ATTENTION: Copy my skins without my permission, and I'll pesonally draw and quarter you medieval style.
 
 
 DNI list:

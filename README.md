@@ -5,7 +5,7 @@
 </p>
 
 
-## ATTENTION: Copy my skins without my permission, and I'll pesonally draw and quarter you medieval style.
+## ATTENTION: Copy my skins without my permission, and I'll pesonally dismember you medieval style.
 
 
 DNI list:

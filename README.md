@@ -4,9 +4,9 @@
     <img width="2000" src=https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4
 </p>
 
-<p align="center">
+
 ## ATTENTION: Copy my skins without my permission, and I'll personally tie you to a table and dismember you with a saw medieval style. Thank you for your understanding. 
-</p>
+
 
 DNI list:
 

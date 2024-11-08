@@ -4,7 +4,7 @@
     <img width="2000" src=https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4
 </p>
 
-ATTENTION: Copy my skins without my permission, and I'll personally draw and quarter you infront of your own home. 
+ATTENTION: Copy my skins without my permission, and I'll personally draw and quarter you infront of your own house for everyone to watch. Don't know what that is? Look up "Drawing and quartering execution method".
 
 DNI list:
 

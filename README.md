@@ -15,6 +15,7 @@ DNI list:
 - If you make fun of any religion at all. Just because you don't believe in said religion, doesn't mean you can make fun of it and disrespect it <3.
 - Heavily political people. I'm not in the mood to talk about politics with anyone online.
 - People that make fun of cis or straight people in general. YOU'RE ignorant  if you make fun of people just for their gender identity and sexuality, het or homo. Period.
+- Homophobes or transphobes. Literally let people be and get a life.
 - King Henry VIII.
 
 

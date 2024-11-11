@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=paggylyn)
 
-# TLDR: I like jesters, books, some videogames, and crafts. Biligual. Weirdos/Transphobes/Homophobes/Minors stay away from me. 
+# TLDR: I like jesters, books, some videogames, and crafts. Weirdos/Transphobes/Homophobes/Minors stay away from me. Neurodivergent.
 
 <p align="center">
     <img width="2000" src=https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4

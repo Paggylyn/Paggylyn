@@ -16,6 +16,7 @@ DNI list:
 - Heavily political people. I'm not in the mood to talk about politics with anyone online.
 - People that make fun of cis or straight people in general. YOU'RE ignorant  if you make fun of people just for their gender identity and sexuality, het or homo. Period.
 - Homophobes or transphobes. Literally let people be and get a life.
+- If you fake DID. I've only had to read one sourcebook on DID to know 90% of you fuckers are faking it. I can tell when you're faking it. 
 - King Henry VIII.
 
 

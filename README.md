@@ -86,7 +86,7 @@ By the way, visit my YouTube to see my art. I post a lot on the community and I 
 
 - Big Will Wood fan. I can go on for hours about his music. 🐀🎹
 
-- I'm called "jesterlovingfreak_24" or "Paggygeek" in other socials, so if you find someone with those names, it MIGHT be me. Probably. 
+- I'm called "jesterlovingfreak_24" , "Un-Lobotomizes", or "Paggygeek" in other socials, so if you find someone with those names, it MIGHT be me. Probably. 
 
 - My interests are: DnD, CR:K / CR:OB, Deltarune, Undertale (and the AUs too), FNaF, history, jesters, marine animals-- especially Orcas! (I like a buncha fandom stuff so if it has a huge fandom, I probably know it)
 

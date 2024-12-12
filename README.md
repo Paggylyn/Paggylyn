@@ -8,7 +8,7 @@
 
 Also, I freely follow anyone I think is cool + follows me. Feel free to block if you're uncomfy <3
 
-- Kids under 13 DO NOT interact with me. Please.
+- Kids under 13 DNI. Please.
 
 - I judge books by their cover, as in read through someone straw/rentry/etc, and block. I base this off red flags that I once ignored in people before that has led to arguments or drama, which I'm not a fan of at all. I just want to play the funny pixel horse game and talk to people with similar interests as me.
 

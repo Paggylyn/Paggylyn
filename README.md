@@ -8,6 +8,9 @@
 
 Also, I freely follow anyone I think is cool + follows me. Feel free to block if you're uncomfy <3
 
+People under 13 DO NOT interact with me. Please.
+I judge books by their cover, as in read through someone straw
+
 My dearests, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved
 - [@Pay2WinMyHeart](https://github.com/RBYI-DNC-NoINSPO-please) my beloved

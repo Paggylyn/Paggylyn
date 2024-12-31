@@ -14,6 +14,8 @@
 
 - I judge books by their cover, as in read through someone straw/rentry/etc, and block. I base this off red flags that I once ignored in people before that has led to arguments or drama, which I'm not a fan of at all. I just want to play the funny pixel horse game and talk to people with similar interests as me.
 
+- Art of mine is in my YT community. (I'll be allowed to get tumblr when I'm 16)
+
 My dearests, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved
 - [@Pay2WinMyHeart](https://github.com/RBYI-DNC-NoINSPO-please) my beloved

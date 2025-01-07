@@ -19,7 +19,8 @@
 My dearests, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved
 - [@Pay2WinMyHeart](https://github.com/RBYI-DNC-NoINSPO-please) my beloved
-- [@Loverwatch](https://github.com/loverwatch) my beloveds 
+- [@Loverwatch](https://github.com/loverwatch) my beloveds
+- [@AnxiousJester](https://github.com/AnxiousJester) my beloved
 
 
 

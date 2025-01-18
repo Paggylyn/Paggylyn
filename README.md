@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=Paggylyn)
-### Look at my strawpage, eheh... 😎 (it's still a work in progress. Right now it's a template. But feel free to draw me smt! I live off of people's drawings. It's what fuels me.)
+
 <p align="center">
     <img width="2000" src=https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4
 </p>

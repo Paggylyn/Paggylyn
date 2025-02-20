@@ -11,7 +11,7 @@
 </p>
     
 <p align="center">
-    [Matching with beloved ! ](https://github.com/softtoyshark)
+    Matching with beloved
 </p>
 
 

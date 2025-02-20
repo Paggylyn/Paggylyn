@@ -6,13 +6,6 @@
 
 ## ATTENTION: Copy my skins without my permission, and I'll pesonally dismember you medieval style.
 
-<p align="center">
-    <img width="500" src=https://github.com/user-attachments/assets/65326ff7-cea1-40f1-96d6-ea9dff10c56a
-</p>
-    
-<p align="center">
-    Matching with baby girl^^^^
-</p>
 
 
 

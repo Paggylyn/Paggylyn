@@ -1,12 +1,3 @@
-![](https://komarev.com/ghpvc/?username=Paggylyn)
-
-
-
-<p align="center">
-    <img width="2000" src=https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4
-</p>
-
-## ATTENTION: Copy my skins without my permission, and I'll pesonally dismember you medieval style.
 
 <p align="center">
     <img width="500" src=https://github.com/user-attachments/assets/65326ff7-cea1-40f1-96d6-ea9dff10c56a
@@ -15,6 +6,14 @@
 <p align="center">
     Matching with <a href="https://github.com/softtoyshark">beloved ^^</a>
 </p>
+
+
+<p align="center">
+    <img width="2000" src=https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4
+</p>
+
+## ATTENTION: Copy my skins without my permission, and I'll pesonally dismember you medieval style.
+
 
 
 

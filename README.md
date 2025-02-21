@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=Paggylyn)
-[![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=your_spotify_id&cover_image=true&theme=default)](https://open.spotify.com/user/your_spotify_id)
+
 
 
 <p align="center">

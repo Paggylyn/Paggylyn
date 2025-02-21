@@ -1,4 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=Paggylyn)
+[![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=your_spotify_id&cover_image=true&theme=default)](https://open.spotify.com/user/your_spotify_id)
+
 
 <p align="center">
     <img width="2000" src=https://github.com/user-attachments/assets/35c20880-0845-422b-b01f-57cea734c7a4

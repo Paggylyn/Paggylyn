@@ -11,7 +11,7 @@
 </p>
     
 <p align="center">
-    matching with [beloved](https://github.com/softtoyshark
+    matching with [beloved](https://github.com/softtoyshark)
 </p>
 
 

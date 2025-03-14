@@ -25,6 +25,8 @@
 
 - I judge books by their cover, as in read through someone straw/rentry/etc, and block. I base this off red flags that I once ignored in people before that has led to arguments or drama, which I'm not a fan of at all. I just want to play the funny pixel horse game and talk to people with similar interests as me.
 
+- There's someone out there calling me an ableist over a mild disagreement. Buddy I have diagnosed autism, innatentive ADHD, and GAD. They've also drawn children making out before. For more info, check out their tumblr and report it: https://www.tumblr.com/sugar-sharkie . 
+
 
 My dearests, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved

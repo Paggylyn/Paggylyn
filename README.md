@@ -3,9 +3,6 @@
     
 </p>
     
-<p align="center">
-    Matching with <a href="https://github.com/softtoyshark"> dearest beloved ^^</a>
-</p>
 
 
 

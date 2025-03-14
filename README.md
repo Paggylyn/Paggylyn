@@ -17,7 +17,7 @@
 
  [Person](https://www.patreon.com/user/about?u=103974018), I'm not ableist. And if you have a problem with me, keep it with me. Don't harass my friends that weren't even involved. Leave them out of this. Talk with me instead of attacking my friends. I'm willing to explain, I'm willing to say anything you want me to say. Just stop attacking and stalking my friends. Last we talked, you were 18 years old and all of my friends are around 14-16, including myself. Please leave them alone if you're insistent on clinging onto your false accusations. Please, that's all I ask at least. If you hate drama so much, why do you have to go out of your way to attack my friends? Stop it. Leave them alone. Your problem is with me, not them. 
 
- Btw, this person right here has attempted to defend blackface and shipping that involves an adult that knew someone since they were a child + lied about being a diagnosed system. Please block and stay away. I am working on a calloout doc alongside other friends of mine.
+ Btw, this person right here has attempted to defend blackface and shipping that involves an adult that knew someone since they were a child + lied about being a diagnosed system. Please block and stay away. I am working on a calloout doc alongside other friends of mine. I also know this person in real life and have to, unfortunately, go to the same school as them. Please stay away from this person.
  ![image](https://github.com/user-attachments/assets/9dd59fb4-5d52-4cb4-9fc5-72a41eb7ceb9)
 
  

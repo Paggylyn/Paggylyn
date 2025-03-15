@@ -12,7 +12,7 @@
 
 
 
-This person right here has attempted to defend blackface, tried to explain how shipping that heavily implies grooming of a minor until they were an adult was okay, lied about being a diagnosed system, and repeatedly called me a "bitch" even after I told them to stop many times because it made me severely uncomfortable. Please block and stay away. I am working on a calloout doc alongside other friends of mine. I also know this person in real life and have to, unfortunately, go to the same school as them. They also think they are a motherfucking angel now after previously telling me they were meant to be born as a zombie/wolf hybrid. Please stay away from this person and, if you can, block and hide if you stumble upon them in Pony Town.
+This person right here has attempted to defend blackface, tried to explain how shipping that heavily implies grooming of a minor until they were an adult was okay, lied about being a diagnosed system, and repeatedly called me a "bitch" even after I told them to stop many times because it made me severely uncomfortable. Please block and stay away. I also know this person in real life and have to, unfortunately, go to the same school as them. They also think they are a motherfucking angel now after previously telling me they were meant to be born as a zombie/wolf hybrid. Please stay away from this person and, if you can, block and hide if you stumble upon them in Pony Town. They are also in a Cookie: Run Kingdom regiment as Pure Vanilla Cookie. If you are in that regiment, please be aware of the kind of person you have let in.
 
  ![image](https://github.com/user-attachments/assets/9dd59fb4-5d52-4cb4-9fc5-72a41eb7ceb9)
 
